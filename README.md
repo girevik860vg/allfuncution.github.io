@@ -1,1 +1,1 @@
-# allfuncution.github.io
+# allfuncution
